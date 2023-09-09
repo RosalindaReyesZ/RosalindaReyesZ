@@ -8,3 +8,6 @@
 - 🥼 Ask me about Science and Health.
 - 🔗 How to reach me: https://www.facebook.com/RosalindaReeyez or rosacss404@gmail.com
 
+  Some technologies I use:
+  
+
